@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Craft for macOS automation with secure Automation for Craft for macOS - widgets and multi-device sync. Featuring widgets and multi-device sync, it's the best
 
 
 
